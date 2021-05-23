@@ -4,7 +4,7 @@
 
 Soy Eli, y uno de mis hobbies favoritos es visitar museos de la Ciudad de México.
 
-Todas las fotografías las he tomado yo merengues, y una disculpa de antemano por la resolución. Sigo trabajando en mis fotos y mejorando el sitio :)
+Todas las fotografías las he tomado yo merengues, y una disculpa de antemano por la resolución
 
 -------------------------------------------------------------------
 
